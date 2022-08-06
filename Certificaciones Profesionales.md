@@ -1,5 +1,5 @@
 
-# ¿Qué son las Acreditaciones Profesionales? **`<Persona>`** 
+# ¿Qué son las Acreditaciones Profesionales? **`Samuel Charles`** 
 ## Historia
 ## Origen
 
